@@ -1,4 +1,4 @@
-
+Get the ultimate Strava for macOS plugin with ultimate Plugin for Strava for macOS - community-challenges and sync-with-wearables. Featuring community-challenges and
 
 
 
